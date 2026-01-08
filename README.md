@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @Perkosets
-- 👀 I’m interested in coding and exploits
-- 🌱 I’m currently learning how to make a perfect roblox web executor
-- 💞️ I’m looking to collaborate on Better exploits
-- 📫 How to reach me discord - perkosets. instagram - masterkoben122
+- 👋 Hi, I’m Perks
+- 👀 I’m interested in coding and exploiting vulnerable softwards
+- 🌱 I’m currently learning how to rape the VN Government
+- 📫 How to reach me discord - @hamald
 - 😄 Pronouns: fuck/nigga
 - ⚡ Fun fact: im not a fucking weirdo none of my shit is backdoored so just enjoy it with 0 worries
 
